@@ -3,7 +3,7 @@
 
 ---
 
-## ENGLISH / 英語版
+## ENGLISH 
 
 ### PRIVACY POLICY
 
